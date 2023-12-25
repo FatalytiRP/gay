@@ -1,0 +1,2 @@
+# gay
+ya ne gei
